@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @STPayoube
+- I am a little developer, i develope bombsquad server and bot discord.
+- Contact me to STPayoube#5110
